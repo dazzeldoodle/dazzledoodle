@@ -7,12 +7,12 @@
        ﹒⇣⇡﹒☆ ➥ minor 💥 . ×﹐
     ⿻❜ . ᶻz # multifandom ✷ ﹒ ✕ ,
 
-                 ˗ˏˋ ★ ˎˊ˗
+                 ᯓ★
   
          "Take my hand Turner."
 
     "Uh I'm kinda afraid of intimacy."
 
-                 ˗ˏˋ ★  ˎˊ˗
+                 ᯓ★
 
 
