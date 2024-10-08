@@ -20,7 +20,9 @@
 
 
 
-[![Untitled479-20241008222137.png](https://i.postimg.cc/LXVn6H69/Untitled479-20241008222137.png)](https://postimg.cc/dkLq5cyp)
+[![Untitled479-20241008222752.png](https://i.postimg.cc/JhFWNv6N/Untitled479-20241008222752.png)](https://postimg.cc/94ySV8j0)
+
+
 
 
 
